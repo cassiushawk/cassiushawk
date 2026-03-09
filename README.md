@@ -1,16 +1,13 @@
-## Hi there 👋
+        ![vash](https://github.com/user-attachments/assets/0fe5e1ad-7e2f-4067-96ce-93ced908cdfa)
 
-<!--
-**cassiushawk/cassiushawk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+    `Kill the spiders to save the butterflies, it's only rational,
+    until you realize that by striving to do so you yourself become the spider.`
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                   **KAEN**  //  *Einar*
+                   *adult*   /   **UAE**
+                   Busy of the times, either w/ academics, sports or w/ my girlfriend.
+       ![Uploading vash2.gif…]()
+  
+          
+                  
+                                       
