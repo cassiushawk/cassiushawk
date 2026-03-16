@@ -1,4 +1,5 @@
-       ![anime](https://github.com/user-attachments/assets/265e32ac-b592-4a32-877b-0609d9db58b4)
+
+![giphy](https://github.com/user-attachments/assets/79cdf10d-cf4e-40d7-9386-ff063e218240)
 
 
     `Kill the spiders to save the butterflies, it's only rational,
