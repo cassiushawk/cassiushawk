@@ -1,16 +1,16 @@
 
-          ![giphy](https://github.com/user-attachments/assets/79cdf10d-cf4e-40d7-9386-ff063e218240)
 
 
-    `Kill the spiders to save the butterflies, it's only rational,
-    until you realize that by striving to do so you yourself become the spider.`
+# To all the viewers lmfao ...
+I go by Kaen or Einar. I'm just a 20 year old, w/ my existence dedicated to my girlfriend.
+I'm from Middle East, and I Do Not tolerate jokes from where I am, funny or not.
+Basketball, swimming, prev. football, writing, piano, gym, poet, etc etc.
+I love Metallica, Iron Maiden, Rammstein, Black Sabbath, Slipknot, Deftones, The Eagles
+Guns N' Roses, Queen, AC/DC, Linkin Park, Judas Priest, Bon Jovi etc etc
 
-                   KAEN  //  Einar
-                   adult   /   UAE
-                   Busy of the times, either w/ academics, sports or w/ my girlfriend.
-
+I love my girlfriend, you'll always find me either w/ her or missing her in pony town.
                    
-       ![Uploading vash2.gif…]()
+       https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHdjNHEwMm1yeDBxb3hjNnBhcDFvd2ppdTZhZGJobjh5MzE0MjRpeiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TG7T3nAJi2B6SENnRl/giphy.gif
   
           
                   
