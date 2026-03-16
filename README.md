@@ -10,7 +10,8 @@ Guns N' Roses, Queen, AC/DC, Linkin Park, Judas Priest, Bon Jovi etc etc
 
 I love my girlfriend, you'll always find me either w/ her or missing her in pony town.
                    
-       ![Uploading giphy (3).gif…]()
+       ![giphy](https://github.com/user-attachments/assets/ed82bd41-493f-4802-b6a1-00eda0aab65b)
+
 
   
           
